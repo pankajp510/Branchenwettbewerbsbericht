@@ -1,0 +1,2 @@
+# Branchenwettbewerbsbericht
+Untersucht Wettbewerbslandschaften, wichtige Akteure und Marktpositionierungsstrategien in verschiedenen Branchen
